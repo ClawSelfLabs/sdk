@@ -1,4 +1,4 @@
-# 🧬 ClawSelf
+# 🧬 ClawSelf : 2BWTXDrm8Di8d64Z2NFfbbLt2FsyM3DnZsF4kGCYpump
 
 **ClawSelf empowers digital identity and ownership through secure, decentralized, and user-focused technology.**
 
